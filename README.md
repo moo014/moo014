@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @moo014
-- 👀 I’m interested in learning real knowledge that makes me 1% better than the day before 
+- 👀 I’m interested in learning real knowledge that makes me better than the day before 
 - 🌱 I’m currently learning Programming .
 - 💞️ I’m looking for any scholarship that brings me more closer to be a professional programmer. 
 - 📫 How to reach me ... mohsen.14kj@yahoo.com 
